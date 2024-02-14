@@ -1,9 +1,1 @@
-![taylor](https://github.com/jesmanda/jesmanda.github.io/assets/160036347/2f410bfe-817d-4427-89ed-d5fca095ad14)
-![link](https://github.com/jesmanda/jesmanda.github.io/assets/160036347/8423b039-44a0-449d-bb1a-722621e6de9b)
-![kucing](https://github.com/jesmanda/jesmanda.github.io/assets/160036347/74011976-85e4-42c4-b24a-a1afc46cf812)
-![justin](https://github.com/jesmanda/jesmanda.github.io/assets/160036347/3349945e-53fb-4587-937b-bc6589427d06)
-![insta](https://github.com/jesmanda/jesmanda.github.io/assets/160036347/27e166af-fea1-457f-8f56-3efac01c3d58)
-![gerhana](https://github.com/jesmanda/jesmanda.github.io/assets/160036347/d8baab93-3e14-42a7-86a9-b757b3811acf)
-![Ed](https://github.com/jesmanda/jesmanda.github.io/assets/160036347/1fc31dcf-a55b-4516-838e-5b23c10fe0b9)
-![billie](https://github.com/jesmanda/jesmanda.github.io/assets/160036347/88ac2454-ea63-4053-a947-504db0b7a6c9)
-![ariana](https://github.com/jesmanda/jesmanda.github.io/assets/160036347/cf3c5259-d09e-4786-86b2-8dfc69e52cb4)
+
